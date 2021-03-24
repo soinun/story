@@ -1,0 +1,2 @@
+# story
+Seberap syg kamu
